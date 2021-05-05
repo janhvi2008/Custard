@@ -1,0 +1,3 @@
+Bring the milk to boil.Simmer once it starts boiling.In a bowl take the custard powder and slowly mix with the milk to get a lump less liquid.When the milk still simeering add the sugar and cook in high while keep stiring.After about 3-4 mins,as the milk start thicker remove from stove,slowly add custard and combine everything well.Again cook for 4 mins or liquid is thick enough.Thicness of custard is entirely on how want to serve.Once all done then let it cool and chill,when ready serve chop all the fruits and add to custard which you have made before and it chill.
+
+AND ENJOY YOUR CUSTARD :)
